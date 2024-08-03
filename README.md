@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Esinski
+- 👀 I’m interested in Minecraft/Video Editing
+- 🌱 I’m currently learning Fusion in Davinci Resolve 18
+- 📫 How to reach me Discord esio._.
+- 😄 Pronouns: he/him (i guess these are the normal ones lol)
+- ⚡ Fun fact: i Know How To Use Command Blocks !
